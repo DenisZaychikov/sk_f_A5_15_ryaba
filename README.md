@@ -1,1 +1,1 @@
-# Kurocka-Ryaba
+# Kurochka-Ryaba
